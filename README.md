@@ -17,3 +17,8 @@ He needs less sleep than a bird; sees an hundred miles around him, and as well b
 He hears the grass grow and the wool on the backs of the sheep, and of course 
 
 all things that sound louder than these. 
+
+
+Huginn and Muninn
+
+are a pair of ravens that fly all over the world, Midgard, and bring information to the god Odin.
